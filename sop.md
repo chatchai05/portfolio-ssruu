@@ -1,1 +1,1 @@
-# <img src="blob:chrome-untrusted://media-app/d4b1eab5-6759-4f8c-9690-e9e11a2b3ce7" alt="Statement of purpose_20260614_202244_0000.png"/>![Uploading image.png…]()
+# <img src="blob:chrome-untrusted://media-app/dfb0dcc4-083f-4cad-b8ee-6fc8797283f8" alt="3_20260930_234416_0002.png"/><img width="1414" height="2000" alt="image" src="https://github.com/user-attachments/assets/6c521e28-79db-4922-9b1d-c2824fd336e6" />
